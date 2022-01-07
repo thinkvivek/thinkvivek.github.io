@@ -1,1 +1,0 @@
-# thinkvivek.github.io
